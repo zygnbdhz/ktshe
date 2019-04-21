@@ -1,3 +1,2 @@
-# 最 新 网 址： ktshe.com
-
+#最新地址：kutou.xyz
 Ctrl+D 收藏本页面
